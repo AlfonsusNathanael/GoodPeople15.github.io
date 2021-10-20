@@ -1,1 +1,1 @@
-# GoofPeople15.github.io
+# GoodPeople15.github.io
